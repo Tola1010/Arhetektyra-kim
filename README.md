@@ -1,1 +1,1 @@
-# Arhetektyra-kim
+# Arhetektura-kim
